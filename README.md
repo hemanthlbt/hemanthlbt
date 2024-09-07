@@ -1,1 +1,1 @@
-## life ain't a rat race folks!
+# life ain't a rat race folks!
