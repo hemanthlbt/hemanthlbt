@@ -1,2 +1,3 @@
-### "take the sh'*'t before the sh'*'t takes you."
---Master oogway
+"Take the shit before the shit takes you!"
+
+          ---- M A S T E R O O G W A Y.                 
