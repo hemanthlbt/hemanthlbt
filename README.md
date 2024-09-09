@@ -4,6 +4,5 @@ Graduated from Amrita university,Kerala,India<br>
 Just a computer Nerd from Hyderabad,India.<br>
 📧:buntytwo@proton.me(Email)<br>
 Love to build software!<br>
-youtube.com/hemanthlbt
-
+youtube.com/hemanthlbt<br>
 Living the Hakunamatata life!
