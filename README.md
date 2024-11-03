@@ -1,5 +1,5 @@
 ####  Hi👋🏽 This is Hemanth kumar lingabathina from India.
-![sammy](samara.jpg)
+![sammy|20](samara.jpg)
 
 
 
